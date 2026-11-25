@@ -1,0 +1,1 @@
+Ссылка с набором данных для проекта: https://drive.google.com/drive/folders/1LJjQ7hfntJ1Jtij5tdI7VU5LbDAHUrVL?usp=sharing
